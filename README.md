@@ -1,0 +1,1 @@
+# daikinoji.github.io
